@@ -1,5 +1,4 @@
-the first one: [It's ok](https://verses.mayoverse.me/english/its-ok)  
-english:  
+the first one (ever): [It's ok](https://verses.mayoverse.me/english/its-ok)  
 [am i enough](https://verses.mayoverse.me/english/am-i-enough)  
 [away away](https://verses.mayoverse.me/english/away-away)  
 [breaking cracking](https://verses.mayoverse.me/english/breaking-cracking)  
